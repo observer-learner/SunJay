@@ -1,2 +1,2 @@
 # SunJay
-I am a fast learner and willing to grow individually and collectively
+I am a fast learner who is willing to grow individually and collectively
